@@ -1,2 +1,3 @@
 # Blooket-Hacks
-The Blooket hacks that you can use in school or anywhere.
+This was created by Thebestgithub1
+I am not associated with Gliz
